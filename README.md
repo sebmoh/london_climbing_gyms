@@ -13,7 +13,7 @@
 11) [RavensWall](https://www.ravenswall.co.uk/)
 12) [The Castle Climbing Centre](https://www.castle-climbing.co.uk/)
 13) [Yonder](https://www.thisisyonder.com/)
-14) [Stronghold: Tottenham Hale]((https://www.thestrongholduk.com/))
+14) [Stronghold: Tottenham Hale](https://www.thestrongholduk.com/)
 15) [Stronghold: London Fields](https://www.thestrongholduk.com/)
 16) [Hackney Wick Boulder Project](https://hackneywickboulder.co.uk/)
 17) [The Reach](https://www.thereach.org.uk/)
