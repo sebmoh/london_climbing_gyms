@@ -11,4 +11,19 @@
 9) [BethWall](https://www.bethwall.co.uk/)
 10) [CroyWall](https://www.croywall.co.uk/)
 11) [RavensWall](https://www.ravenswall.co.uk/)
-12) 
+12) [The Castle Climbing Centre](https://www.castle-climbing.co.uk/)
+13) Yonder
+14) [Stronghold: Tottenham Hale]((https://www.thestrongholduk.com/))
+15) [Stronghold: London Fields](https://www.thestrongholduk.com/)
+16) Hackney Wick Boulder Project
+17) The Reach
+18) Westway
+19) [BlocFit](https://www.blocfit.co.uk/)
+20) [The Climbing Hangar](https://www.theclimbinghangar.com/locations/london)
+21) The Font
+22) West1 Climbing Wall
+23) The Nest
+24) White Spider
+25) City Bouldering Aldgate
+26) MileEnd
+27) [Hang.](https://www.hang.co.uk/)
