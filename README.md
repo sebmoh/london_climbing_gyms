@@ -25,5 +25,5 @@
 23) [The Nest Climbing](https://www.thenestclimbing.co.uk/)
 24) [White Spider](https://spiderclimbing.com/white-spider/)
 25) [City Bouldering Aldgate](https://www.citybouldering.co.uk/)
-26) [Mile End Climbing Wall)[https://www.citybouldering.co.uk/]
+26) [Mile End Climbing Wall](https://www.citybouldering.co.uk/)
 27) [Hang.](https://www.hang.co.uk/)
