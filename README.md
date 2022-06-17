@@ -27,3 +27,4 @@
 25) [City Bouldering Aldgate](https://www.citybouldering.co.uk/)
 26) [Mile End Climbing Wall](https://www.citybouldering.co.uk/)
 27) [Hang.](https://www.hang.co.uk/)
+28) [Substation](https://substation.co.uk/brixton/)
