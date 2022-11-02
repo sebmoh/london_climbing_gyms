@@ -28,3 +28,6 @@
 26) [Mile End Climbing Wall](https://www.citybouldering.co.uk/)
 27) [Hang.](https://www.hang.co.uk/)
 28) [Substation](https://substation.co.uk/brixton/)
+29) [EustonWall](https://londonclimbingcentres.co.uk/centre/eustonwall/)
+30) [Rise Climbing](https://www.rise-climbing.com/)
+31) [Romford Rock & Boulder](https://www.romfordrockandboulder.co.uk/)
