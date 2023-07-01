@@ -31,3 +31,5 @@
 29) [EustonWall](https://londonclimbingcentres.co.uk/centre/eustonwall/)
 30) [Rise Climbing](https://www.rise-climbing.com/)
 31) [Romford Rock & Boulder](https://www.romfordrockandboulder.co.uk/)
+32) [The Boardroom Climbing](https://www.theboardroomclimbing.com/wimbledon)
+33) [Parthian Climbing](https://parthianclimbing.com/wandsworth/)
